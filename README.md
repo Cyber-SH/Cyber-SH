@@ -1,8 +1,9 @@
 - 👋 Hi, I’m @Cyber-SH
 - 👀 I’m @Sri Lanka
 - 🌱 I’m currently learning Programming😊
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ Thank you for visit my Profile🌾
+- 📫 Follow Me🇱🇰
+- 🎖️️🇸🇭
 
 <!---
 Cyber-SH/Cyber-SH is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
